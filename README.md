@@ -3,7 +3,7 @@
 © Credits
 Modified Baileys @aimasja
         ❤
-Source Bailyes @daffadevv
+Source Baileys @daffadevv
 ```
 
 # WhatsApp Baileys
